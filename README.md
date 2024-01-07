@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Emunot20
-- 👀 I’m interested in mobile software
+- 👀 I’m interested in mobile and computer software
 - 🌱 I’m currently interested learning
 - 💞️ I’m looking to collaborate with you all
 - 📫 Reach me via email
